@@ -1,0 +1,40 @@
+Ms Low sayings:
+
+- no arc no mark
+- one fraction on the left one on the right!
+- future scholars
+- one day when spikey be a daddy ah...
+- dunmanians are MPs
+- boys ah later ur handwriting liddat how to court girls ah 
+- playing truant to see snow ( best yr of my life or smthg)
+- my husband teaching me abt eq
+- this one hot favourite
+- year 1 don't sleep so late ah, later year 2...
+- year 3, 2 math, 3 science and if u want u can take 2 humanities
+- later next time u get married then how ah?
+- you see how clarissa become what ah? 1 digit? Ah yes yes she from 1 digit mark become top 25% top 10% thats why I say ANYTHING IS POSSIBLE!!!
+- ah i think (person) likes this subject, hor?
+- I can see whether you have Math talent
+- u have to change now u cannot last minute do work u have to practise, if u do last minute work it is impossible to do well
+- right spikey?
+- clarissa why u sleeping? (after that...) joshua? Aiya its ok he special
+- yall better stop on your what star brawls?
+- last time I play candy crush until everyday play play play. Once you play u will get addicted one.
+- my kneecap ah.. last time...
+- everyone can do it! I can see the potential in (某某人)
+- next time when you have to plan the town ah, town planners
+- not to scare you ah... but
+- can someone tell me...
+- aiyo why this one so ugly ah? (sakura spikey)
+- classy pot -> Clarissa
+- I'm sorry but...
+- what is this question asking? LCM or HCF?
+- ah? Sorry I cannot hear you with the mask on
+- die die also must...
+- who never hand in assignment? I'm tracking u know! You must be serious...
+- yall better sit properly ah! Later your back got problem... (talks about how her back pain)
+- IT expert, can help? How i do this ah?
+- thanks God I got IT expert coz i not good... dunno how to do the Google Meet then got people help me thanks thanks thanks ah I so lucky!
+- can someone answer? Why no one answer? 'silence' (某某人) can you tell me? 'silence' hello??
+- y = mx + c
+-no working no mark
