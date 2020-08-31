@@ -12,7 +12,6 @@ Ms Low sayings:
 - year 1 don't sleep so late ah, later year 2...
 - year 3, 2 math, 3 science and if u want u can take 2 humanities
 - later next time u get married then how ah?
-- you see how clarissa become what ah? 1 digit? Ah yes yes she from 1 digit mark become top 25% top 10% thats why I say ANYTHING IS POSSIBLE!!!
 - ah i think (person) likes this subject, hor?
 - I can see whether you have Math talent
 - u have to change now u cannot last minute do work u have to practise, if u do last minute work it is impossible to do well
@@ -26,7 +25,6 @@ Ms Low sayings:
 - not to scare you ah... but
 - can someone tell me...
 - aiyo why this one so ugly ah? (sakura spikey)
-- classy pot -> Clarissa
 - I'm sorry but...
 - what is this question asking? LCM or HCF?
 - ah? Sorry I cannot hear you with the mask on
