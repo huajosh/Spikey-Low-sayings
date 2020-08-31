@@ -38,3 +38,4 @@ Ms Low sayings:
 - can someone answer? Why no one answer? 'silence' (某某人) can you tell me? 'silence' hello??
 - y = mx + c
 -no working no mark
+last time i basketball player ah now all of u play game only
